@@ -1,4 +1,4 @@
-realeasing stuff soon
+nvidia pls
 
 <!---
 aniidev/aniidev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
